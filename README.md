@@ -13,4 +13,4 @@ more info on my straw... leave a drawing, i love art!!!!! (˶ᵔ ᵕ ᵔ˶)
 
 no set dni because i just don't interact with things i do not agree with.
 
-i'm kind of like a mix between a garden fairy and wooden puppet dol ‧₊˚♪ 𝄞₊˚⊹
+i'm kind of like a mix between a garden fairy and puppet doll ‧₊˚♪ 𝄞₊˚⊹
