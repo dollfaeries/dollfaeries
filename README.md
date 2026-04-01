@@ -1,7 +1,9 @@
 
-<div align="centre">
+<p align="centre">
   
 ![description](https://static.wikia.nocookie.net/cookierunkingdom/images/7/74/Cutscene_beast_episode01_018.png/revision/latest?cb=20240119045350)
+
+</p>
 
 hi i'm jane!!!!!! (˶˃𐃷˂˶)
 
@@ -14,5 +16,3 @@ more info on my straw... leave a drawing, i love art!!!!! ^_^
 no set dni because i just don't interact with things i do not agree with.
 
 i'm kind of like a mix between a puppet doll and a fairy ‧₊˚♪ 𝄞₊˚⊹
-
-</div>
