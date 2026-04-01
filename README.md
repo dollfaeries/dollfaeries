@@ -1,9 +1,7 @@
 
 <p align="centre">
-  
-![description](https://static.wikia.nocookie.net/cookierunkingdom/images/7/74/Cutscene_beast_episode01_018.png/revision/latest?cb=20240119045350)
-
-</p>
+  <img src="https://static.wikia.nocookie.net/cookierunkingdom/images/7/74/Cutscene_beast_episode01_018.png/revision/latest?cb=20240119045350"
+    </p>
 
 hi i'm jane!!!!!! (˶˃𐃷˂˶)
 
