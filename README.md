@@ -7,7 +7,7 @@ hi i'm jane!!!!!! (˶˃𐃷˂˶)
 
 i usually get on to hang out with my friends!!!!!!!
 
-i'm friendly, just introverted. so i love to chat and listen... but i'm lazy sometimes.....
+i'm friendly, just introverted. so i love to chat and listen...! ohmygawd please oomf me i love making oomfs 
 
 more info on my straw... leave a drawing!!!!! (˶ᵔ ᵕ ᵔ˶)
 
